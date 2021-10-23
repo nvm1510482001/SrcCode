@@ -8,3 +8,7 @@
 ## Microsoft Azure
 
 
+## Thành viên
+*** Chú Đại bi ***
+*** Việt Chim non ***
+*** Tĩnh Chủ tịch ***
