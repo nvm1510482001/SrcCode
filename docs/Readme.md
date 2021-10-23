@@ -9,6 +9,6 @@
 
 
 ## Thành viên
-*** Chú Đại bi ***
-*** Việt Chim non ***
-*** Tĩnh Chủ tịch ***
+***Chú Đại bi***
+***Việt Chim non***
+***Tĩnh Chủ tịch***
